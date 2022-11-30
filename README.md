@@ -16,3 +16,5 @@ First it started with heavy floods and then 18 billion tons of Greenland's ice s
 On the 5th of March 2070. I was on my way back from school, when the earth trembled for the very first time, this time it wasn’t just in one region of the world, it was felt everywhere causing unimaginable disruptions, with this unexpected event everyone around the world came to a conclusion that a great tragedy was upon us, but it was too late, extinction is already before us.
 I write this later to say goodbye, hopefully if you are reading this later right now, it’s either you weren’t born at this time or you in some way survived the earth's collapse. 
 If you ever find another planet to call home again by any chance, I hope you see and learn from the past mistakes of coordination failure and understand that moloch is the only enemy of man, I hope you seek deeply to do good and always love unity.
+
+I liscense my story to the pluriverse.wtf community.
